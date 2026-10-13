@@ -9,5 +9,5 @@ anspruchsvolle Übung
 …
 
 ## Das erwarte ich von der Veranstaltung
-
+Das es lustig wird.
 …
